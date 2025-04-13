@@ -1,6 +1,5 @@
 ## 软件下载
 [懒得勤快](https://masuit.com/)
-[脑袋瓜子](https://www.naodai.org/)
 
 ## 视频
 [抖音](https://www.douyin.com/)
