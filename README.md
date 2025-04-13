@@ -2,7 +2,7 @@
 [懒得勤快](https://masuit.com/)
 
 ## 视频
-[抖音](https://www.douyin.com/)
+[抖音](https://www.douyin.com/)  
 [freeok](https://www.freeok.la/)
 [苏苏](https://susuifa.com/)
 [完美看看](https://www.wanmeikk.film/)
